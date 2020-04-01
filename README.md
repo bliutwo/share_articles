@@ -1,4 +1,4 @@
-# bliutwo's Article Sharing Repo
+# bliutwo's Article Sharing
 
 This repository contains highlights of and comments on the articles I read.
 
