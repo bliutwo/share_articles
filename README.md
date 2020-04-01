@@ -1,5 +1,5 @@
 # bliutwo's Article Sharing
 
-This is just a repository I want to use to share compilations and comments on the articles I read.
+This repository contains compilations/highlights and comments on the articles I read.
 
-You can view the articles by clicking on the folders of the months from which the highlights are made.
+You can view the highlights by clicking on the folders of the months from which the highlights are made.
