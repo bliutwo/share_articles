@@ -28,6 +28,8 @@ Notable quotes:
 > 
 > "If you have a physical or mental condition that keeps you from serving, that'll be decided after you're drafted," Winkie says. "Same goes for people who are dual nationals. If they decide they don't want to draft Iranian Americans for such a conflict, they'll determine that after they draft you."
 
+Google Translation:
+
 > 谁可以免除选择性服务？
 >
 > 年龄不在18到26岁之间的人。
@@ -51,6 +53,8 @@ And (和):
 > **"After someone is drafted, they can claim conscientious objector status, which is basically they say they have religious or moral convictions that do not allow them to serve in war,"** Winkie says.
 > 
 > He adds that **in previous wars, claiming conscientious objector status allowed people to serve as medics or in other non-combat positions, and in extreme cases have made it so they didn't have to serve in the military at all.**
+
+Google Translation:
 
 > 您几岁就不再被选拔？
 > 
@@ -76,6 +80,8 @@ Notable quotes:
 > 
 > In some countries, conscientious objectors are assigned to an alternative civilian service as a substitute for conscription or military service. Some conscientious objectors consider themselves pacifist, non-interventionist, non-resistant, non-aggressionist, anti-imperialist, antimilitarist or philosophically stateless (not believing in the notion of state).
 
+Google Translation:
+
 > 出于良心拒服兵役的人是“基于思想，良心或宗教信仰的自由而声称拒绝服兵役的人” [1]。[2]
 > 
 > 在某些国家/地区，出于良心拒服兵役者被分配到替代性的文职部门，以代替征兵或兵役。 一些出于良心拒服兵役的人认为自己是和平主义者，非干预主义者，非抵抗主义者，非侵略主义者，反帝国主义者，反军事主义者或哲学上无国籍的人（不相信国家概念）。
@@ -83,6 +89,8 @@ Notable quotes:
 In the United States (在美国):
 
 > There are currently legal provisions in the United States for recognizing conscientious objection, both through the Selective Service System and through the Department of Defense. **The United States recognizes religious and moral objections**, but not selective objections. **Conscientious objectors in the United States may perform either civilian work or noncombatant service in lieu of combatant military service.**[89]
+
+Google Translation:
 
 > 美国目前有法律规定，通过选拔役制和国防部承认依良心拒服兵役。 美国承认宗教和道德上的反对，但不承认选择性的反对。 在美国，出于良心拒服兵役者可以执行文职工作或非战斗人员的服务来代替战斗人员的军事服务。[89]
 
@@ -107,6 +115,8 @@ Summarizing four bullet points:
 > The president has received criticism for dodging the draft, including from members of Congress. Democratic Sen. Tammy Duckworth, a Purple Heart recipient, once called him "Cadet Bone Spurs."
 >
 > Like Trump, many other young men from wealthy families found ways to avoid the draft.
+
+Google Translation:
 
 > 唐纳德·特朗普总统五次被延期服兵役，一次是脚伤，另一次是大学。
 > 
