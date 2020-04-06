@@ -28,7 +28,7 @@ Notable quotes:
 > 
 > "If you have a physical or mental condition that keeps you from serving, that'll be decided after you're drafted," Winkie says. "Same goes for people who are dual nationals. If they decide they don't want to draft Iranian Americans for such a conflict, they'll determine that after they draft you."
 
-Google Translation (谷歌翻译):
+Google translation (谷歌翻译):
 
 > 谁可以免除选择性服务？
 >
