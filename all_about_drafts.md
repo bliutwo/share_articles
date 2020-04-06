@@ -45,3 +45,15 @@ Notable quotes:
 In the United States:
 
 > There are currently legal provisions in the United States for recognizing conscientious objection, both through the Selective Service System and through the Department of Defense. **The United States recognizes religious and moral objections**, but not selective objections. **Conscientious objectors in the United States may perform either civilian work or noncombatant service in lieu of combatant military service.**[89]
+
+## "Donald Trump avoided the military draft 5 times, but it wasn't uncommon for young men from influential families to do so during the Vietnam War"
+
+[Original article, Business Insider](https://www.businessinsider.com/donald-trump-avoided-the-military-draft-which-was-common-at-the-time-vietnam-war-2018-12)
+
+> President Donald Trump received military draft deferments five times — once for bad feet and four times for college.
+>
+> Thanks in part to the deferments, he did not serve in Vietnam.
+> 
+> The president has received criticism for dodging the draft, including from members of Congress. Democratic Sen. Tammy Duckworth, a Purple Heart recipient, once called him "Cadet Bone Spurs."
+>
+> Like Trump, many other young men from wealthy families found ways to avoid the draft.
