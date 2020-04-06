@@ -106,6 +106,8 @@ From the Chinese article (来自中文文章):
 
 [Original article, Business Insider](https://www.businessinsider.com/donald-trump-avoided-the-military-draft-which-was-common-at-the-time-vietnam-war-2018-12)
 
+[来源文章, Business Insider](https://www.businessinsider.com/donald-trump-avoided-the-military-draft-which-was-common-at-the-time-vietnam-war-2018-12)
+
 Summarizing four bullet points (总结四个要点):
 
 > President Donald Trump received military draft deferments five times — once for bad feet and four times for college.
