@@ -102,7 +102,7 @@ From the Chinese article (来自中文文章):
 > 
 > 在1995年3月8日，联合国人权委员会通过的1995/83决议声明“履行军事服务的人员不应该排除其因为良心而拒绝军事服务的权利”[3]。这一理念在1998年被重申，1998/77决议承认“（已经）在服兵役的人员可以产生出良心的拒绝想法”[4][5][6][7]。一些组织则在5月15日庆祝国际良心拒服兵役者日[8]。这一词的含义也被延伸至因良心不安而拒绝为整个军事工业复合体服务的人[9]。 
 
-## "Donald Trump avoided the military draft 5 times, but it wasn't uncommon for young men from influential families to do so during the Vietnam War" | "唐纳德·特朗普（Donald Trump）避免了5次军事征兵，但是在越战期间，来自有影响力的家庭的年轻人这样做并不罕见"
+## "Donald Trump avoided the military draft 5 times, but it wasn't uncommon for young men from influential families to do so during the Vietnam War" ("唐纳德·特朗普（Donald Trump）避免了5次军事征兵，但是在越战期间，来自有影响力的家庭的年轻人这样做并不罕见")
 
 [Original article, Business Insider](https://www.businessinsider.com/donald-trump-avoided-the-military-draft-which-was-common-at-the-time-vietnam-war-2018-12)
 
