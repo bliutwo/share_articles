@@ -28,7 +28,7 @@ Notable quotes:
 > 
 > "If you have a physical or mental condition that keeps you from serving, that'll be decided after you're drafted," Winkie says. "Same goes for people who are dual nationals. If they decide they don't want to draft Iranian Americans for such a conflict, they'll determine that after they draft you."
 
-Google Translation:
+Google Translation (谷歌翻译):
 
 > 谁可以免除选择性服务？
 >
@@ -54,7 +54,7 @@ And (和):
 > 
 > He adds that **in previous wars, claiming conscientious objector status allowed people to serve as medics or in other non-combat positions, and in extreme cases have made it so they didn't have to serve in the military at all.**
 
-Google Translation:
+Google Translation (谷歌翻译):
 
 > 您几岁就不再被选拔？
 > 
@@ -68,7 +68,7 @@ Google Translation:
 > 
 > 他补充说，在以前的战争中，声称出于良心拒服兵役者的身份允许人们担任军医或其他非战斗岗位，并且在极端情况下做到了这一点，因此他们根本不必在军队中服役。
 
-## Conscientious objector
+## Conscientious objector (良心拒服兵役者)
 
 [Wikipedia article](https://en.wikipedia.org/wiki/Conscientious_objector)
 
@@ -80,7 +80,7 @@ Notable quotes:
 > 
 > In some countries, conscientious objectors are assigned to an alternative civilian service as a substitute for conscription or military service. Some conscientious objectors consider themselves pacifist, non-interventionist, non-resistant, non-aggressionist, anti-imperialist, antimilitarist or philosophically stateless (not believing in the notion of state).
 
-Google Translation:
+Google Translation (谷歌翻译):
 
 > 出于良心拒服兵役的人是“基于思想，良心或宗教信仰的自由而声称拒绝服兵役的人” [1]。[2]
 > 
@@ -90,7 +90,7 @@ In the United States (在美国):
 
 > There are currently legal provisions in the United States for recognizing conscientious objection, both through the Selective Service System and through the Department of Defense. **The United States recognizes religious and moral objections**, but not selective objections. **Conscientious objectors in the United States may perform either civilian work or noncombatant service in lieu of combatant military service.**[89]
 
-Google Translation:
+Google Translation (谷歌翻译):
 
 > 美国目前有法律规定，通过选拔役制和国防部承认依良心拒服兵役。 美国承认宗教和道德上的反对，但不承认选择性的反对。 在美国，出于良心拒服兵役者可以执行文职工作或非战斗人员的服务来代替战斗人员的军事服务。[89]
 
@@ -106,7 +106,7 @@ From the Chinese article (来自中文文章):
 
 [Original article, Business Insider](https://www.businessinsider.com/donald-trump-avoided-the-military-draft-which-was-common-at-the-time-vietnam-war-2018-12)
 
-Summarizing four bullet points:
+Summarizing four bullet points (总结四个要点):
 
 > President Donald Trump received military draft deferments five times — once for bad feet and four times for college.
 >
@@ -116,7 +116,7 @@ Summarizing four bullet points:
 >
 > Like Trump, many other young men from wealthy families found ways to avoid the draft.
 
-Google Translation:
+Google Translation (谷歌翻译):
 
 > 唐纳德·特朗普总统五次被延期服兵役，一次是脚伤，另一次是大学。
 > 
