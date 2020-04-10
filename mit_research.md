@@ -7,7 +7,7 @@ Here is a [PDF version of that article](https://drive.google.com/file/d/1zwmrp5x
 ## Key takeaways
 
 - Healthcare workers may be at an even HIGHER risk for exposure to coronavirus, than previously thought
-- 6-foot #PhysicalDistancing may not be sufficient
+- Original 6-foot physical distancing may not be sufficient
 - Masks may be necessary
 
 Because:
