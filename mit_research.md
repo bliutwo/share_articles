@@ -17,7 +17,7 @@ Because:
 
 And finally,
 
-- Dr. Bourouiba fears WHO's current guidelines are "overly simplified" and "may limit the effectiveness of the proposed interventions" against coronavirus. "There's an urgency in revising the guidelines currently being given by the WHO and the CDCgov."
+- Dr. Bourouiba fears WHO's current guidelines are "overly simplified" and "may limit the effectiveness of the proposed interventions" against coronavirus. "There's an urgency in revising the guidelines currently being given by the WHO and the CDC."
 
 ## Dr. Dena Grayson's original tweet thread
 
@@ -25,7 +25,7 @@ Most of the following is ripped straight from [Dr. Dena Grayson's tweet thread](
 
 > MIT's Dr. Lydia Bourouiba warns: "pathogen-bearing droplets of ALL sizes can travel 23-27 feet." She also warns: "droplets that settle along the trajectory can contaminate surfaces-and "residues or droplet nuclei" may "stay suspended in the air for HOURS."
 > 
-> Bourouiba fears WHO's current guidelines are "overly simplified" and "may limit the effectiveness of the proposed interventions" against coronavirus. "There's an urgency in revising the guidelines currently being given by the WHO and the CDCgov."
+> Bourouiba fears WHO's current guidelines are "overly simplified" and "may limit the effectiveness of the proposed interventions" against coronavirus. "There's an urgency in revising the guidelines currently being given by the WHO and the CDC."
 >
 > The rapid international spread of COVID19 suggests (current assumptions) may not accurately reflect what actually occurs w/respiratory emissions, possibly contributing to the ineffectiveness of some procedures used to limit the spread" of coronavirus.
 > 
