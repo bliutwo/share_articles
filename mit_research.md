@@ -1,6 +1,6 @@
 # MIT's Dr. Lydia Bourouiba's Recent Research
 
-Here is her [actual published Journal of the American Medical Association article](https://jamanetwork.com/journals/jama/fullarticle/2763852?appId=scweb).
+Here is her [actual published research in the Journal of the American Medical Association](https://jamanetwork.com/journals/jama/fullarticle/2763852?appId=scweb).
 
 Here is a [PDF version of that article](https://drive.google.com/file/d/1zwmrp5xazMsduPVzYp0RDAdrMnkyDG00/view?usp=sharing).
 
