@@ -4,6 +4,8 @@ Here is her [actual published research in the Journal of the American Medical As
 
 Here is a [PDF version of that article](https://drive.google.com/file/d/1zwmrp5xazMsduPVzYp0RDAdrMnkyDG00/view?usp=sharing).
 
+MythBusters's [Art of the Sneeze](https://www.youtube.com/watch?v=0f4sUNWkq60&feature=youtu.be), which illustrates this very phenomenon.
+
 ## Key takeaways
 
 - Healthcare workers may be at an even HIGHER risk for exposure to coronavirus, than previously thought
