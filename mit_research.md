@@ -33,7 +33,7 @@ Most of the following is ripped straight from [Dr. Dena Grayson's tweet thread](
 > 
 > Dr. Bourouiba, an expert in the dynamics of coughs and sneezes: "A 2020 report from China demonstrated that SARS-CoV-2 virus particles could be found **in the ventilation systems** in hospital rooms of patients with COVID19.
 > 
-> Dr. Bourouiba's research (published in [@JAMA_current]) strongly suggests:
+> Dr. Bourouiba's research (published in [@JAMA_current](https://twitter.com/JAMA_current?s=20)) strongly suggests:
 > 
 > - Healthcare workers may be at an even HIGHER risk for exposure to coronavirus, than previously thought
 > - 6-foot #PhysicalDistancing may not be sufficient
