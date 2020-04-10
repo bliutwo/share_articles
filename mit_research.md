@@ -1,4 +1,4 @@
-# MIT's Dr. Lydia Bourouiba's Recent Research
+# MIT's Dr. Lydia Bourouiba's Recent Research on the "Coronavirus Cloud"
 
 Here is her [actual published research in the Journal of the American Medical Association](https://jamanetwork.com/journals/jama/fullarticle/2763852?appId=scweb).
 
