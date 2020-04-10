@@ -21,7 +21,7 @@ And finally,
 
 ## Dr. Dena Grayson's original tweet thread
 
-Most of the following is ripped straight from [Dr. Dena Grayson's tweet thread](https://twitter.com/DrDenaGrayson/status/1245050039359156232), with some minor formatting modifications.
+Most of the following is ripped straight from [Dr. Dena Grayson's tweet thread](https://twitter.com/DrDenaGrayson/status/1245050039359156232), with some minor formatting modifications:
 
 > MIT's Dr. Lydia Bourouiba warns: "pathogen-bearing droplets of ALL sizes can travel 23-27 feet." She also warns: "droplets that settle along the trajectory can contaminate surfaces-and "residues or droplet nuclei" may "stay suspended in the air for HOURS."
 > 
