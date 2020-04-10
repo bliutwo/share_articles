@@ -17,7 +17,7 @@ Because:
 
 And finally,
 
-- Bourouiba fears WHO's current guidelines are "overly simplified" and "may limit the effectiveness of the proposed interventions" against coronavirus. "There's an urgency in revising the guidelines currently being given by the WHO and the CDCgov."
+- Dr. Bourouiba fears WHO's current guidelines are "overly simplified" and "may limit the effectiveness of the proposed interventions" against coronavirus. "There's an urgency in revising the guidelines currently being given by the WHO and the CDCgov."
 
 ## Dr. Dena Grayson's original tweet thread
 
