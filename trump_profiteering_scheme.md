@@ -1,6 +1,6 @@
 # u/pm_me_all_dogs lays out the Trump Administration's coronavirus profiteering scheme
 
-["Hospitals say feds are seizing masks and other coronavirus supplies without a word", Los Angeles Times](https://www.latimes.com/politics/story/2020-04-07/hospitals-washington-seize-coronavirus-supplies)
+[Los Angeles Times: "Hospitals say feds are seizing masks and other coronavirus supplies without a word"](https://www.latimes.com/politics/story/2020-04-07/hospitals-washington-seize-coronavirus-supplies)
 
 The following is the [original comment](https://www.reddit.com/r/politics/comments/fwu2m0/hospitals_say_feds_are_seizing_masks_and_other/fmr1dcw/), word for word, written by `/u/pm_me_all_dogs`:
 
