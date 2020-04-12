@@ -1,4 +1,4 @@
-# u/pm_me_all_dogs lays out the Trump Administration's coronavirus profiteering scheme
+# The Trump Administration's Coronavirus Profiteering Scheme
 
 [Los Angeles Times: "Hospitals say feds are seizing masks and other coronavirus supplies without a word"](https://www.latimes.com/politics/story/2020-04-07/hospitals-washington-seize-coronavirus-supplies)
 
