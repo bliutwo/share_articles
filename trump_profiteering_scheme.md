@@ -58,7 +58,7 @@ The following is the [original comment](https://www.reddit.com/r/politics/commen
 >
 > **I would pen an email, letter and call to your county sheriff citing sources and your concerns of the feds taking your hospitals supplies. I just thought of this replying to you and I will be doing this tomorrow. We need sheriffs and deputies guarding our hospitals from the feds.**
 >
-> 我会给您的县治安官写一封电子邮件，来信并打电话，引用消息来源以及您对美联储收取医院用品的担忧。 我只是想到了对您的答复，明天我会这样做。 我们需要警长和副手保护我们的医院远离联邦政府。
+> **我会给您的县治安官写一封电子邮件，来信并打电话，引用消息来源以及您对美联储收取医院用品的担忧。 我只是想到了对您的答复，明天我会这样做。 我们需要警长和副手保护我们的医院远离联邦政府。**
 >
 > Jesus fucking Christ
 >
