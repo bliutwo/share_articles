@@ -1,4 +1,4 @@
-# The Trump Administration's Coronavirus Profiteering Scheme
+# The Trump Administration's Coronavirus Profiteering Scheme | 特朗普政府的冠状病毒暴利计划
 
 [Los Angeles Times: "Hospitals say feds are seizing masks and other coronavirus supplies without a word"](https://www.latimes.com/politics/story/2020-04-07/hospitals-washington-seize-coronavirus-supplies)
 
