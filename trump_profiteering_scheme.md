@@ -10,7 +10,7 @@
 
 The following is the [original comment](https://www.reddit.com/r/politics/comments/fwu2m0/hospitals_say_feds_are_seizing_masks_and_other/fmr1dcw/), word for word, written by `/u/pm_me_all_dogs`:
 
-以下是[原文] [https://www.reddit.com/r/politics/comments/fwu2m0/hospitals_say_feds_are_seizing_masks_and_other/fmr1dcw/），由/ u / pm_me_all_dogs撰写，一个字一个字:
+以下是 [原文](https://www.reddit.com/r/politics/comments/fwu2m0/hospitals_say_feds_are_seizing_masks_and_other/fmr1dcw/)，由 `/u/pm_me_all_dogs` 撰写，一个字一个字:
 
 > The Trump administration and the GOP would have us get sick and die while they profit off of tax dollars.
 >
