@@ -52,16 +52,20 @@ The following is the [original comment](https://www.reddit.com/r/politics/commen
 
 *[Explanation: The Battle of Athens was a rebellion led by citizens in Athens and Etowah, Tennessee, United States, against the local government in August 1946. The citizens, including some World War II veterans, accused the local officials of predatory policing, police brutality, political corruption, and voter intimidation. [Wikipedia](https://en.wikipedia.org/wiki/Battle_of_Athens_(1946))]*
 
-> 国会和最高法院不会废话。 拜登或DNC都不是。 我们需要另一场雅典之战。
->
+>国会和最高法院什么也不会做。 拜登或DNC也什么都不会做。 我们需要另一场雅典之战。
+
+【说明:“雅典之战”是1946年8月，美国田纳西州埃托瓦市和雅典市民领导的一场反抗当地政府的起义。这些公民，包括一些二战老兵，指责当地官员掠夺性的警察执法、警察暴力、政治腐败和恐吓选民。维基百科】
+
 > Fun fact: the position with the highest constitutional power is your county sheriff. They have the ability to block feds from entering and leaving the county. A few did this back during the whole "extraordinary rendition" thing whenever that was.
 >
-> 有趣的事实：具有最高宪法权力的职位是您的县治安官。 他们有能力阻止联邦政府进出该县。 在整个“非常规移交”过程中，只有少数人做到了。
->
+>有趣的事实:宪法赋予最高权力的职位是你的县治安官。他们有能力阻止联邦调查局人员进出这个县。在整个“非常规引渡”的过程中，也有少数人这么做。
+
+【非常规引渡; 某国将在本土逮捕并怀疑与恐怖活动相关的人员转移到另外一国并在该国以非正常法律手段对其进行审讯的行为】
+
 > **I would pen an email, letter and call to your county sheriff citing sources and your concerns of the feds taking your hospitals supplies. I just thought of this replying to you and I will be doing this tomorrow. We need sheriffs and deputies guarding our hospitals from the feds.**
 >
-> **我会给您的县治安官写一封电子邮件，来信并打电话，引用消息来源以及您对美联储收取医院用品的担忧。 我只是想到了对您的答复，明天我会这样做。 我们需要警长和副手保护我们的医院远离联邦政府。**
+> **我会给你的县治安官写封邮件，写信，告诉他你的消息来源以及你对联邦政府拿走你的医院用品的担忧。我只是想到这个回复你，我明天会做这个。我们需要警长和副手保护我们的医院远离联邦政府。**
 >
 > Jesus fucking Christ
->
-> 耶稣他妈的基督
+
+JFC (JFC)是一个粗俗的俚语首字母缩略词，代表“操他妈的耶稣基督”。在很多非正式的语境中，尤其是在网上交流中，它通常被用作失意时的一种恼怒的感叹词或情感强调。
