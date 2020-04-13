@@ -2,7 +2,7 @@
 
 [Los Angeles Times: "Hospitals say feds are seizing masks and other coronavirus supplies without a word"](https://www.latimes.com/politics/story/2020-04-07/hospitals-washington-seize-coronavirus-supplies)
 
-[]洛杉矶时报：“医院说美联储正在无声地没收口罩和其他冠状病毒”](https://www.latimes.com/politics/story/2020-04-07/hospitals-washington-seize-coronavirus-supplies)
+[洛杉矶时报：“医院说美联储正在无声地没收口罩和其他冠状病毒”](https://www.latimes.com/politics/story/2020-04-07/hospitals-washington-seize-coronavirus-supplies)
 
 **It's hard to believe this is the reality we live in (and got ourselves into, as a nation).**
 
