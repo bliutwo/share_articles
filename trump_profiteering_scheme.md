@@ -49,7 +49,9 @@ The following is the [original comment](https://www.reddit.com/r/politics/commen
 > 7.）消除竞争。攻击任何不合作的公司。https://mothership.sg/2020/04/trump-3m-10-million-masks/
 >
 > Congress and the Supreme Court aren't going to do shit. Neither is Biden or the DNC. We need another Battle of Athens.
->
+
+*[Explanation: The Battle of Athens was a rebellion led by citizens in Athens and Etowah, Tennessee, United States, against the local government in August 1946. The citizens, including some World War II veterans, accused the local officials of predatory policing, police brutality, political corruption, and voter intimidation. [Wikipedia](https://en.wikipedia.org/wiki/Battle_of_Athens_(1946))]*
+
 > 国会和最高法院不会废话。 拜登或DNC都不是。 我们需要另一场雅典之战。
 >
 > Fun fact: the position with the highest constitutional power is your county sheriff. They have the ability to block feds from entering and leaving the county. A few did this back during the whole "extraordinary rendition" thing whenever that was.
