@@ -54,7 +54,7 @@ The following is the [original comment](https://www.reddit.com/r/politics/commen
 
 >国会和最高法院什么也不会做。 拜登或DNC也什么都不会做。 我们需要另一场雅典之战。
 
-【说明:“雅典之战”是1946年8月，美国田纳西州埃托瓦市和雅典市民领导的一场反抗当地政府的起义。这些公民，包括一些二战老兵，指责当地官员掠夺性的警察执法、警察暴力、政治腐败和恐吓选民。[维基百科](https://en.wikipedia.org/wiki/Battle_of_Athens_(1946)】
+【说明:“雅典之战”是1946年8月，美国田纳西州埃托瓦市和雅典市民领导的一场反抗当地政府的起义。这些公民，包括一些二战老兵，指责当地官员掠夺性的警察执法、警察暴力、政治腐败和恐吓选民。[维基百科](https://en.wikipedia.org/wiki/Battle_of_Athens_(1946))】
 
 > Fun fact: the position with the highest constitutional power is your county sheriff. They have the ability to block feds from entering and leaving the county. A few did this back during the whole "extraordinary rendition" thing whenever that was.
 >
