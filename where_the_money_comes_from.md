@@ -1,5 +1,7 @@
 # Where the Money Comes From
 
+[Google Docs version](https://docs.google.com/document/d/1P8kl42xviPwyo9oDipBa9_yniRtgNLkeR4NWLYMnWKc/edit?usp=sharing)
+
 **This article is about how the government is able to give (most) people a $1200-$2000 check.**
 
 [Legislation proposes paying Americans $2,000 a month, News4Jax](https://www.news4jax.com/news/national/2020/04/15/legislation-proposes-2000-a-month-for-americans/)
