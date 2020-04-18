@@ -38,7 +38,7 @@ The following is the [original comment](https://www.reddit.com/r/politics/commen
 >
 > 5.) Have the states bid on the supplies, driving up the price: https://youtu.be/2zeEUs7tcpE
 >
-> 5.）让各州竞标医疗物资，抬高价格：https：//youtu.be/2zeEUs7tcpE
+> 5.）让各州竞标医疗物资，抬高价格：https://youtu.be/2zeEUs7tcpE
 >
 > 6.) Have the federal government spend taxpayer dollars to ship supplies purchased from China to these brand new private companies: https://www.npr.org/sections/coronavirus-live-updates/2020/03/29/823543513/project-airbridge-to-expedite-arrival-of-needed-supplies-white-house-says?utm_campaign=npr&utm_source=twitter.com&utm_medium=social&utm_term=nprnews
 >
