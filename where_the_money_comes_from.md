@@ -1,6 +1,6 @@
 # Where the Money Comes From
 
-This article is about how the government is able to give (most) people a $1200-$2000 check.
+**This article is about how the government is able to give (most) people a $1200-$2000 check.**
 
 [Legislation proposes paying Americans $2,000 a month, News4Jax](https://www.news4jax.com/news/national/2020/04/15/legislation-proposes-2000-a-month-for-americans/)
 
@@ -11,7 +11,7 @@ This article is about how the government is able to give (most) people a $1200-$
 `/u/DerekVanGorder` provides [an answer](https://www.reddit.com/r/Futurology/comments/g2se2i/legislation_proposes_paying_americans_2000_a_month/fnnq6vw/?context=1):
 
 > All money comes from currency issuers: governments, central banks, and banks. These institutions create money [by fiat,](https://en.wikipedia.org/wiki/Fiat_money) by spending or loaning new money into existence.
-> 
+>
 > People like you & I can't create money by fiat. We're currency users; we use the money that our institutions create. So this sounds a little unfamiliar to us, but nevertheless, it's pretty ordinary; new money is [created every day,](https://www.economicsnetwork.ac.uk/archive/starkey_banking) and finds its way into our economy in the form of government spending, or bank loans.
 >
 > In normal times, the general public prefers to have currency issued to us for *work.* In our culture, wage labor is considered a morally just and righteous way to receive money, and there is a strong stigma against receiving money for free. Currency issuers go through a lot of effort to satisfy this demand of ours; they use [monetary policy](https://en.wikipedia.org/wiki/Monetary_policy) to try to achieve a [full employment target](https://en.wikipedia.org/wiki/Full_employment), so that most people can receive money through wages.
