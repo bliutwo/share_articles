@@ -60,7 +60,7 @@ This is a follow-up conversation I had with someone we will call Kevin (there we
 >
 > **Kevin** (quoting the article): "In our culture, wage labor is considered a morally just and righteous way to receive money, and there is a strong stigma against receiving money for free. Currency issuers go through a lot of effort to satisfy this demand of ours; they use monetary policy to try to achieve a full employment target, so that most people can receive money through wages."
 >
-> **Kevin**: I kind of felt like this line was missing the point that, in our current economy, where we still have scarcity, individuals making money is where the economic output comes from. Without people making money, there would be no money to spend it on. Work is what created value currently in society (for the most part).
+> **Kevin**: I kind of felt like this line was missing the point that, in our current economy, where we still have scarcity, individuals making money is where the economic output comes from. Without people making money, there would be no money to spend it on. Work is what creates value currently in society (for the most part).
 >
 > **Me** (quoting the article): 'People feel so strongly about this, that we come up with stories about how the "real value" of money comes not from goods, or production, but from work.'
 >
