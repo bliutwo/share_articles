@@ -38,7 +38,9 @@
 >
 > **EDIT 2:** If you're interested in more on these topics, I recommend checking out [Alex Howlett](http://www.greshm.org/) and his [Boston Basic Income](https://www.youtube.com/channel/UCsVjEFKDYn1yQ5E6raxM-dw) discussion group.
 
-A follow-up conversation I had with someone we will call Kevin (there were minor edits to aid readability):
+## Follow-up conversation
+
+This is a follow-up conversation I had with someone we will call Kevin (there were minor edits to aid readability):
 
 **Me**: You can tell me what you didn't like about the article in text form if you like.
 
