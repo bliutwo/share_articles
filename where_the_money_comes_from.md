@@ -2,7 +2,7 @@
 
 [Google Docs version](https://docs.google.com/document/d/1P8kl42xviPwyo9oDipBa9_yniRtgNLkeR4NWLYMnWKc/edit?usp=sharing)
 
-**This article is about how the government is able to give (most) people a $1200-$2000 check.**
+**How is the government able to give (most) people a $1200-$2000 check? This article attempts to answer that question.**
 
 [Legislation proposes paying Americans $2,000 a month, News4Jax](https://www.news4jax.com/news/national/2020/04/15/legislation-proposes-2000-a-month-for-americans/)
 
@@ -43,77 +43,77 @@
 This is a follow-up conversation I had with someone we will call Kevin (there were minor edits to aid readability):
 
 > **Me**: You can tell me what you didn't like about the article in text form if you like.
-> 
+>
 > **Kevin**: Wait I reread it, and I don't dislike it any more...
-> 
+>
 > **Me**: LOOOOL ok
-> 
+>
 > **Kevin**: ...because of the last line.
-> 
+>
 > **Me** (quoting the article): "A simple way of summing this up is: it's not important where money comes from (that has an easy answer). The important question is: does the new money have somewhere to go? i.e. does the economy have enough productive potential, to respond to that new money with goods?"
-> 
+>
 > **Me**: You mean this line?
-> 
+>
 > **Kevin**: Yes.
-> 
+>
 > **Me**: Gotcha. If that line wasn't there, what would have been unsatisfying / not good about the post?
-> 
+>
 > **Kevin** (quoting the article): "In our culture, wage labor is considered a morally just and righteous way to receive money, and there is a strong stigma against receiving money for free. Currency issuers go through a lot of effort to satisfy this demand of ours; they use monetary policy to try to achieve a full employment target, so that most people can receive money through wages."
-> 
+>
 > **Kevin**: I kind of felt like this line was missing the point that, in our current economy, where we still have scarcity, individuals making money is where the economic output comes from. Without people making money, there would be no money to spend it on. Work is what created value currently in society (for the most part).
-> 
+>
 > **Me** (quoting the article): 'People feel so strongly about this, that we come up with stories about how the "real value" of money comes not from goods, or production, but from work.'
-> 
+>
 > **Kevin**: Yeah, it's a fair response in text. I guess I half skimmed it and came away with the wrong impression.
-> 
+>
 > **Me**: Gotcha. But are you saying that work is what currently creates value in society?
-> 
+>
 > **Kevin**: I don't think work does, but I think production is normally closely associated with work.
-> 
+>
 > **Me**: Gotcha.
-> 
+>
 > **Kevin**: But the truth is, the value of money doesn't have much to do with work. And the government doesn't need to tax anybody before printing money; we're always printing money, one way or another.
-> 
+>
 > **Me**: So basically you agree, but maybe you feel that work creates more value than the original post's author says.
-> 
+>
 > **Kevin**: Yeah. I feel like they dismiss work, but work is what creates most nominal value.
-> 
+>
 > **Me**: Ah, I see. After all, goods and production are a direct result of work.
-> 
+>
 > **Kevin**: Yes. You can't just print money and forget about the lost work you would have had. If I make my own nation and print a trillion dollars, there's no economic value because I'm missing the production of the people of a nation.
-> 
+>
 > **Me**: I guess the point of the article is that the work is already there and the value is already present, but the government hasn't decided that people ought to have "enough" money to spend. (Of course, "enough" is subjective depending on who you ask.)
-> 
+>
 > **Kevin**: Sure, except a lot of the work isn't there right now because so many people are out of work.
-> 
+>
 > **Me**: As in unemployment?
-> 
+>
 > **Kevin**: Yeah.
-> 
+>
 > **Me** (quoting the article): "During an emergency, where a lot of people suddenly have to stop working, full employment is no longer a tenable way to funnel money to consumers. The economy will shrink from the non-essential businesses to essential businesses only. But these essential businesses still need customers-- even if not all of those customers can be workers for a while. So governments need to come up with another way to get money to consumers, so the economy can keep working.... or else the whole thing will crash."
-> 
+>
 > **Me**: I think this is pretty much a direct response to what you just brought up.
-> 
+>
 > **Kevin**: I feel like thats kind of handwaving the lack of economic output, saying that more money in the system will make everything work for now.
-> 
+>
 > **Me**: I don't think he's handwaving it; rather, he's saying that in order to keep the whole thing from crashing, we should put on a band-aid for now. Of course lack of economic output is bad in the long run, but in the short term, this is what we need in order to be able to *have* a long run.
-> 
+>
 > **Kevin**: Yeah, I think it has a lot of merit.
-> 
+>
 > **Me**: I agree. The whole situation is pretty @#$%ed tbh.
-> 
+>
 > **Kevin**: Yeah, unfortunate. Pandemic. Unlucky.
-> 
+>
 > **Me**: What's more unfortunate is how reactively against preventing the pandemic the government was, and as a result, how reactively against preventing the pandemic people around me were.
-> 
+>
 > **Kevin**: I feel like I'm being told something, but in retrospect, I guess you were right. So lmao.
-> 
+>
 > **Me**: Lmao. I mean I'm not criticizing you or my friends directly. I really just think it's our government's fault.
-> 
+>
 > **Kevin**: I kind of agree, because we were just taking queues from the government about the severity.
-> 
+>
 > **Me**: Exactly.
-> 
+>
 > **Kevin**: `anyway rip`
-> 
+>
 > **Me**: Hopefully we'll survive it, and then we can learn from it.
