@@ -4,9 +4,9 @@
 
 [Taiwan News: "Japanese media reports N. Korea's Kim Jong Un in vegetative state"](https://www.taiwannews.com.tw/en/news/3922763)
 
-**The possibility of Kim Jong Un currently being a vegetable is today's topic of debate and speculation. Here is a summary of the situation, provided by `/u/Cenodoxus`. Enjoy!**
+**The possibility of Kim Jong Un currently being a vegetable is today's topic of debate and speculation. Here is an [assessment of the situation](https://www.reddit.com/r/news/comments/g7s31c/kim_jong_un_allegedly_in_a_vegetative_state_after/fojmhod/) (as of 11:37 AM, Saturday, April 25, 2020), provided by `/u/Cenodoxus`. Enjoy!**
 
-An [assessment of the situation](https://www.reddit.com/r/news/comments/g7s31c/kim_jong_un_allegedly_in_a_vegetative_state_after/fojmhod/) by `/u/Cenodoxus` (as of 11:37 AM, Saturday, April 25, 2020):
+An [assessment of the situation](https://www.reddit.com/r/news/comments/g7s31c/kim_jong_un_allegedly_in_a_vegetative_state_after/fojmhod/) by `/u/Cenodoxus`:
 
 > Hey folks. To answer a few questions that keep popping up here and elsewhere:
 >
