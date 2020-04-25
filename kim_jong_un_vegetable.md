@@ -1,14 +1,12 @@
 # Is Kim Jong Un Currently in a Vegetative State?
 
-It is currently 11:37 AM, Saturday, April 25, 2020.
+[The Jerusalem Post: "Kim Jong Un in a 'vegetative state' after heart surgery - Japanese Media"](https://www.jpost.com/international/china-sent-team-with-medical-experts-to-advise-on-nkoreas-kim-625831)
 
-[Kim Jong Un in a 'vegetative state' after heart surgery - Japanese Media, The Jerusalem Post](https://www.jpost.com/international/china-sent-team-with-medical-experts-to-advise-on-nkoreas-kim-625831)
-
-[Japanese media reports N. Korea's Kim Jong Un in vegetative state, Taiwan News](https://www.taiwannews.com.tw/en/news/3922763)
+[Taiwan News: "Japanese media reports N. Korea's Kim Jong Un in vegetative state"](https://www.taiwannews.com.tw/en/news/3922763)
 
 **The possibility of Kim Jong Un currently being a vegetable is today's topic of debate and speculation. Here is a summary of the situation, provided by `/u/Cenodoxus`. Enjoy!**
 
-An [assessment of the situation](https://www.reddit.com/r/news/comments/g7s31c/kim_jong_un_allegedly_in_a_vegetative_state_after/fojmhod/) by `/u/Cenodoxus`:
+An [assessment of the situation](https://www.reddit.com/r/news/comments/g7s31c/kim_jong_un_allegedly_in_a_vegetative_state_after/fojmhod/) by `/u/Cenodoxus` (as of 11:37 AM, Saturday, April 25, 2020):
 
 > Hey folks. To answer a few questions that keep popping up here and elsewhere:
 >
