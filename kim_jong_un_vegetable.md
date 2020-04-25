@@ -6,8 +6,6 @@
 
 **The possibility of Kim Jong Un currently being a vegetable is today's topic of debate and speculation. Here is an [assessment of the situation](https://www.reddit.com/r/news/comments/g7s31c/kim_jong_un_allegedly_in_a_vegetative_state_after/fojmhod/) (as of 11:37 AM, Saturday, April 25, 2020), provided by `/u/Cenodoxus`. Enjoy!**
 
-An [assessment of the situation](https://www.reddit.com/r/news/comments/g7s31c/kim_jong_un_allegedly_in_a_vegetative_state_after/fojmhod/) by `/u/Cenodoxus`:
-
 > Hey folks. To answer a few questions that keep popping up here and elsewhere:
 >
 > **Was a Chinese medical team dispatched to treat Kim?** Yes, this apparently did happen. A Chinese medical team, including cardiac specialists, was sent to North Korea on either Wednesday or Thursday of this past week. Much of the information that's racing across the internet right now is the result of text conversations between them and their colleagues that leaked on Chinese social media. I don't know if the reported screen captures of their phones are legitimate.
