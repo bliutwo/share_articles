@@ -1,5 +1,7 @@
 # Is Kim Jong Un Currently in a Vegetative State?
 
+[Google Docs version of this article with Chinese translation](https://docs.google.com/document/d/11vKR8Sc8NcVCNRYxY9x1dDLeJCxJUFAFGe7h8xQioDg/edit?usp=sharing)
+
 [The Jerusalem Post: "Kim Jong Un in a 'vegetative state' after heart surgery - Japanese Media"](https://www.jpost.com/international/china-sent-team-with-medical-experts-to-advise-on-nkoreas-kim-625831)
 
 [Taiwan News: "Japanese media reports N. Korea's Kim Jong Un in vegetative state"](https://www.taiwannews.com.tw/en/news/3922763)
