@@ -1,5 +1,7 @@
 # April Fools: What If?
 
+[Google Docs version](https://docs.google.com/document/d/1c3BlNRbkKr-EBbDUwhHAnu2-kWkezgopg2FvHoySgs8/edit?usp=sharing)
+
 [Original thread](https://www.reddit.com/r/AskReddit/comments/fmeine/on_april_1st_everyone_gets_a_text_on_their_phone/?utm_source=share&utm_medium=web2x)
 
 The title of the post on `/r/AskReddit` goes like so:
