@@ -1,6 +1,6 @@
 # A Firsthand COVID-19 Experience
 
-`/u/Cant_Even18` [recounts their harrowing COVID-19 experience in great detail](https://www.reddit.com/r/WhitePeopleTwitter/comments/gidso7/take_your_mask_off_to_make_me_feel_better/fqfvrqn/?context=8&depth=9), in spite of coworkers who think it's all overblown:
+`/u/Cant_Even18` [recounts their harrowing COVID-19 experience in great detail](https://www.reddit.com/r/WhitePeopleTwitter/comments/gidso7/take_your_mask_off_to_make_me_feel_better/fqfvrqn/), in spite of coworkers who think it's all overblown:
 
 > I'm happy to tell you, because the worst part was not knowing if what I was feeling was normal or if each new symptom meant I would die.
 >
