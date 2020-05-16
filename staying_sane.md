@@ -1,5 +1,7 @@
 # How To Stay Sane During Quarantine
 
+[Google Docs version](https://docs.google.com/document/d/11ayCZFJiITGTUsojLFxhyQYwBjEJFHs57Mky3eAPuj0/edit?usp=sharing)
+
 `/u/Slartibradfast` describes [how he manages extended periods away from the world](https://www.reddit.com/r/LifeProTips/comments/fl8lms/lpt_advice_on_managing_extended_periods_away_from/):
 
 > I was a submariner for 6 years with multiple deployments of 6 months and other extended underways of multiple months with short in-port stints in between. In that time I had to develop coping strategies for dealing with the isolation and loss of social contact with the outside World.
