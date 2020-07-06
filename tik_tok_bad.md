@@ -1,6 +1,8 @@
 # u/bangorlol describes how shady TikTok is and why nobody should use it
 
-[Original post](https://www.reddit.com/r/bestof/comments/hdw64x/ubangorlol_describes_how_shady_tiktok_is_and_why/)
+[Original comment](https://www.reddit.com/r/videos/comments/fxgi06/not_new_news_but_tbh_if_you_have_tiktiok_just_get/fmuko1m/)
+
+[/r/bestof post](https://www.reddit.com/r/bestof/comments/hdw64x/ubangorlol_describes_how_shady_tiktok_is_and_why/)
 
 #### Edit: Please read to avoid confusion:  
 
