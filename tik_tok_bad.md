@@ -1,5 +1,7 @@
 # u/bangorlol describes how shady TikTok is and why nobody should use it
 
+[Original post](https://www.reddit.com/r/bestof/comments/hdw64x/ubangorlol_describes_how_shady_tiktok_is_and_why/)
+
 #### Edit: Please read to avoid confusion:  
 
 I'm getting together the data now and enlisted the help of my colleagues who were also involved in the RE process. We'll be publishing data here over the next few days: https://www.reddit.com/r/tiktok_reversing/. I invite any security folk who have the time to post what they've got as well - known domains and ip addresses for sysadmins to filter on, etc. I understand the app has changed quite a bit in recent versions, so my data won't be up to date.
