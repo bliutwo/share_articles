@@ -1,4 +1,4 @@
-# /u/_DiDan_ explains why focusing on "black on black" crime is a distracting tactic used in bad faith
+# `/u/_DiDan_` explains why focusing on "black on black" crime is a distracting tactic used in bad faith
 
 [Original comment](https://www.reddit.com/r/findareddit/comments/hgthd9/is_there_a_subreddit_where_people_can_ask/fw6k0m6/)
 
