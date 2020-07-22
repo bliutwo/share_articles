@@ -1,0 +1,11 @@
+# /u/_DiDan_ explains why focusing on "black on black" crime is a distracting tactic used in bad faith
+
+[Original comment](https://www.reddit.com/r/findareddit/comments/hgthd9/is_there_a_subreddit_where_people_can_ask/fw6k0m6/)
+
+[Original /r/bestof post](https://www.reddit.com/r/bestof/comments/hv9xif/u_didan_explains_why_focusing_on_black_on_black/)
+
+> also answer to your second question: "black on black" violence is never actually about skin colour... think about it whens the last time a black guy killed another black guy for being black... whereas police are inarguably biased - there have DEFINITELY been cases where police killed people who would have survived had they had a different complexion.
+>
+> so bringing up "black on black violence" as a counter to the current blm movement is basically ignoring all context to try and shut down their voice using misleading and irrelevant statistics.
+>
+> aside from that, BLM isn't saying that black people never kill each other. violence in low income communities is bad no one is denying that but the solution isn't MORE incarceration and policing we've tried that for nearly 30 years and it's only made it worse. You need to address the reasons these communities are violent, and unless you're one of the types who think black people are just magically genetically more violent the obvious reason is poor socioeconomic conditions. there's no jobs no businesses no way out of these hoods (and that's no accident many US cities were intentionally segregated Chicago for example), the closest thing is organised crime which is why many people in these communities get sucked into that shit young they have the choice of steal or starve and they chose survival. Violent police presence doesn't help either. Nor does taking young men out of these hoods on bullshit charges and locking them up taking role models away from the younger kids. the whole system is built to keep you down when you're born poor man idk if you can empathise but when you experience it it's like being kicked while you're down but you were born down and being kicked so you don't know any different. these conditions need to change people shouldn't be treated like that in a first world country.
