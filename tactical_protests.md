@@ -1,0 +1,10 @@
+# A Portland protester offers first hand experience on the tactic protesters are employing including using leaf blowers to clear tear gas, homemade personal armor, and physically tackling Federal agents to disrupt arrests.
+
+[Portland’s mayor tear-gassed by US agents as protest rages](https://apnews.com/edd4ebdd7a245e568da69db38aea04db)
+
+[Original comment](https://www.reddit.com/r/collapse/comments/hwbw31/mayor_of_portland_oregon_tear_gassed_by_federal/fyzzjcp/?context=3)
+
+[Original /r/bestof post](https://www.reddit.com/r/bestof/comments/hwkwnd/a_portland_protester_offers_first_hand_experience/)
+
+
+> Ive been to many many protests in Portland over the last 55 odd nights and staying on the front line between the Feds / Police and the main crowd of people who are supporting and watching. People have absolutely escalated back. People have formed affinity groups, sticking together with shields and umbrellas, moving forwards within teargas, picking up cannisters, throwing back and then throwing their own things at them. Everytime tear gas is deployed it is swiftly dealt with. Sure, at some points its get to be too much and we retreat for a second, but we are back almost immediately. But we form literal phalnaxs  of groups, with shields, moving forward in increments in order to push the feds back to their building and they cant do shit to get past our lines, short of charging us and tackling and even then it doesnt result in anything goof for them. Tons of leafblowers and fans coming through, blowing back gas and making it so people can throw back munitions. and everyone is padded up with helmets, vests, thick clothing, thick gloves. They know their tactics are no longer working, we clear the air of gas in a matter of minutes and then the masses are back to support the front line people. If they pulled guns we would obviously have no chance, but I have seen people within 30 feet of me tackle a US marshal to de-arrest someone and then pulling back far, escaping retribution and blending into the crowd. Protestors in portland have grown, have gotten smart, and have gotten tactical. Its amazing to see.
